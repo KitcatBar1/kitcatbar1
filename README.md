@@ -8,7 +8,7 @@
 <p align="center"> i dont mind c + h :)
   <p align="center"> mostly likely offtab or not paying attention, whisp if you wanna chat so ill be more likely to see it !
     <p align="center"> i also am not the best at interacting first . ., , soouryy ......
-  < algin="center"> (psst im the biggest tommy coolatta fan alive btw)
+  <p align="center"> (psst im the biggest tommy coolatta fan alive btw)
 <!--
 **KitcatBar1/kitcatbar1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
