@@ -1,5 +1,14 @@
-## Hi there 👋
-
+![Alt Text](https://media.discordapp.net/attachments/1226438972356431889/1512723778713686026/Untitled2996_20260606034357.png?ex=6a25214d&is=6a23cfcd&hm=86a0f5c46b1acb56d2d2b724fa49a9e623b0679243b929ba0aec03c299f54529&=&format=webp&quality=lossless&width=1141&height=930)
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1226438972356431889/1512724104480948297/Untitled2997_20260606034522.png?ex=6a25219b&is=6a23d01b&hm=820d2a6813688bd60b0851eea6dc5073e1fa9c2881f98df15b0a755ca71a304f&=&format=webp&quality=lossless&width=609&height=383" alt="Alternate Text" width="400">
+</p>
+<p align="center">im kitcat / citkat / kitcatbar1 (handful i know . . .) </p>
+<p align="center"> i use she/he/they pronouns with a heavy masc pref !!!!! </p>
+<p align="center"> i love my two beautiful wives <3333 </p>
+<p align="center"> i dont mind c + h :)
+  <p align="center"> mostly likely offtab or not paying attention, whisp if you wanna chat so ill be more likely to see it !
+    <p align="center"> i also am not the best at interacting first . ., , soouryy ......
+  < algin="center"> (psst im the biggest tommy coolatta fan alive btw)
 <!--
 **KitcatBar1/kitcatbar1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
